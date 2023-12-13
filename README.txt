@@ -1,0 +1,1 @@
+Analysis of a research paper to examine relevant realistic and real-world cases of the oil and gas industry in the form of 2 x 2 strategic games, aiming to improve decision-making processes by providing an adequate visualization of the strategic interactions of several situations.
